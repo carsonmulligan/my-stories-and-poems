@@ -1,4 +1,5 @@
-#_The Daily Oklahoman_
+# The Daily Oklahoman
+----
 It was windy when I came in. I told the guard somebody turned the wind on and forgot to turn it off. He said the wind makes this visit special. 
 
 Senator Bergstrom was there with the guards and Senator Allen. They said call us by our names not Senator this or that and then we had coffee. Bergstrom adjusted his bolo tie and Mary Boren came out of the gift shop. We tipped our hats and said hello. 
