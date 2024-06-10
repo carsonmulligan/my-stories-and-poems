@@ -23,8 +23,8 @@ Wang Fanzhi, Tang Dynasty
 ----
 ## Chapter One
 ----
-A moving slimmer of light woke Jean-Pierre from under the tree. He looked out over the port's afternoon lethargy. He looked down at the grass that felt like Great Lakes fescue and laughed, how many PhD theses have been written about whatever the scientific name of this Japanese grass was. He moved onto his belly, forearms on the ground, face just above the grass parted the grass to let the light shine onto the soil. Jean-Pierre saw the small rocks, thought about the PH levels, the nitrogen, all the things people like him measured. He knew this place was healthy though and knew that the tree and the grass were all apart of the same system. He knew this intuitively and heard the long, low bellow of a tanker horn. He opened his eyes and felt he knew the way. 
-
+A moving piece of light woke Jean-Pierre from under the tree and he looked out over the port's afternoon lull. Jean-Pierre saw the small rocks, thought about the PH levels, the nitrogen, all the things people like him measured. He knew this place was healthy though and knew that the tree and the grass were all apart of the same system. He knew this intuitively and heard the long, low bellow of a tanker horn. He opened his eyes and felt he knew the way. 
+----
 The last day of the conference, the attendees were packing up, saying goodbyes, and many had already left. Jean-Pierre's flight back was delayed from 13:45 to 17:30 and he was not fazed. He felt a smooth state of ease since he had heard the tanker horn the day before. Around 13:00 a group of Dutch scientists, with whom he'd worked closely this week, but also for many years back in Europe, came to the airport to fly to Amsterdam at 19:00. Of the twenty or so in the group, Jean Pierre tagged up with seven or eight of them at the airport bar in this isolated, quiet part of the Narita airport. They drank beer and talked shop — exchanging stories about office politics, research trips, ladies, and sports. At 16:30 Jean-Pierre went to check his flight. 
 
 “You mean this flight?” The airline desk employee pointed out the window. 
