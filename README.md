@@ -8,18 +8,19 @@
 遨遊自取足。
 誰能奈我何。
 
-
-_“I have ten acres. _
-_Planted at the back of the Zhongshan Mountain. _
-_Four or five Qingsong Trees. _
-_Two or three Beanstalks. _
-_If it’s hot I’ll jump in the pond. _
-_If it’s cold I’ll sing songs by the shore._
-_Traveling or at home I am with myself._
-_Who could tell me what to do?”_
-
-
-
+----
+“I have ten acres. 
+Planted at the back of the Zhongshan Mountain. 
+Four or five Qingsong Trees. 
+Two or three Beanstalks. 
+If it’s hot I’ll jump in the pond. 
+If it’s cold I’ll sing songs by the shore.
+Traveling or at home I am with myself.
+Who could tell me what to do?”
+----
+Wang Fanzhi, Tang Dynasty
+----
+----
 ## Chapter One
 ----
 A moving slimmer of light woke Jean-Pierre from under the tree. He looked out over the port's afternoon lethargy. He looked down at the grass that felt like Great Lakes fescue and laughed, how many PhD theses have been written about whatever the scientific name of this Japanese grass was. He moved onto his belly, forearms on the ground, face just above the grass parted the grass to let the light shine onto the soil. Jean-Pierre saw the small rocks, thought about the PH levels, the nitrogen, all the things people like him measured. He knew this place was healthy though and knew that the tree and the grass were all apart of the same system. He knew this intuitively and heard the long, low bellow of a tanker horn. He opened his eyes and felt he knew the way. 
