@@ -21,7 +21,6 @@ _Who could tell me what to do?”_
 
 
 ## Chapter One
-_ Jean-Pierre returns to an agricultural science conference in Fukuoka. His doubts about academic research_ 
 ----
 A moving slimmer of light woke Jean-Pierre from under the tree. He looked out over the port's afternoon lethargy. He looked down at the grass that felt like Great Lakes fescue and laughed, how many PhD theses have been written about whatever the scientific name of this Japanese grass was. He moved onto his belly, forearms on the ground, face just above the grass parted the grass to let the light shine onto the soil. Jean-Pierre saw the small rocks, thought about the PH levels, the nitrogen, all the things people like him measured. He knew this place was healthy though and knew that the tree and the grass were all apart of the same system. He knew this intuitively and heard the long, low bellow of a tanker horn. He opened his eyes and felt he knew the way. 
 
@@ -36,7 +35,6 @@ Now out in Tokyo it was about 11pm. He dropped off his bag at a capsule hostel a
 Next day Jean Pierre didn't check flights. He went back to sleep in the capsule and laughed a little. He thought about the paper he presented with Fujimori on an enhanced understanding of rice genetics. He was proud of the paper and of what he and Fujimori had acheived, though here in the capsule he thought about what it felt like to wake up under the tree and to see the Great Lakes fescue for the first time, and know what it was without looking it up — knowing that the system was working, even that his sleeping there made the whole thing work — thinking about this he laughed and made plans to visit his friend Fujimori. 
 
 ## Chapter Two
-_Jean-Pierre settles accounts with his PhD advisor _ — _Jean-Pierre decides to start walking_  — The journey to find _do nothing_ agriculture begins — The _do nothing flow_ achieved briefly
 
 ----
 There was still much research to be done. For now it could be done remotely. Jean Pierre also realized he could spend more time in the field. He made a plan to stay for six weeks longer. Along the way he would decide to do away with the research entirely as it existed for publishing papers. Fujimori would realize that also. For now Jean Pierre took the train to Fukuoka and drafted an email to his dissertation advisor in Paris. 
@@ -46,7 +44,6 @@ _I have decided to extend my stay in Japan and will stay to visit the experiment
 He worked with a clear mind on the train — looking out the window and working. He finished very much and then realized he was almost there. Keep it simple, clean it up, finish the thing, he thought. He was almost there, then he was, then he was done. Jean Pierre closed his laptop and thought about the port and the horn. Fukuoka. 
 
 ## Chapter Three
-_The fisherman's quarrel. Fujimori's courtesy. Chasing a coy fish. Akihiro's triumph_
 ----
 The Old Fisherman Terukazu splashed water on Fujimori as their boats passed in the canal. 
 
@@ -69,7 +66,6 @@ Aki back on the dock the water became calm again. The coy returned and the two m
 
 ----
 ## Chapter Four
-_An evening at Masanobu's The circular inlaid tea cooking dojo pit. The girl's foreign dance_
 ----
 The local rice master practiced a specific form of zen agriculture, called _do nothing_ from the Daosist _wu-wei_.  Whereby the practictioner puts seeds down together, seeds that grow symbiotic plants in balance. 
 
