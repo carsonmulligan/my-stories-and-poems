@@ -81,3 +81,5 @@
 Wang Fanzhi, Tang Dynasty
 ----
 
+Other Stories
+### The Daily Oklahoman (https://github.com/carsonmulligan/my-stories-and-poems/blob/main/le_daily_oklahoman.md)
