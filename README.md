@@ -41,20 +41,6 @@
 > 
 
 
-## Le Repondre, au Quebec
-> master, beautiful it is, your verse. chiseled without parallel
->  
-> charm us you do, with a new grace
-> 
-> the enchanter of the sun countries parnessian is
->
-> tremor our language does, under your lyre
-
-> dead the classics are, here the rebirth is
->
-> grand regenerator, under your vast wings
->
-> 
 
 ## Chinese Farmer-Zen Poem - Cowboy Translation
 
