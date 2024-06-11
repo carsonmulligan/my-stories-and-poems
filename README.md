@@ -98,7 +98,7 @@ The local rice master practiced a specific form of zen agriculture, called _do n
 
 Barley and rice are planted among eachother on small plots of land in fall and in spring. The same vegetables in the hills. To cover the fields the farmer uses crimson clover. It shoots nitrogen into the soil and keeps weeds out. Brings in nice pollinators, helps prevent plant disease. That's really it. There is still much labor involved. Direct seeding — without using a large till, and manual weeding where necessary. The process revolves around a circular inlaid tea cooking dojo pit. Akihiro Fujimori brought Jean Pierre to the Masanobu farm.
 
-Masanobu knew the tea ceremony and served it very well. This night he served tea from the pot of a visiting Britisher, a hiking thermos stamped MADE IN ENGLAND with the year 1945. The Britisher was tall and looked more like a Scott, a good highlander from the movies. He had a funny name, Dougal Roscoe Cameron III. The group accepted the tea as it was served in Masanobu's style. The pot was inspected by all and passed around the room. Each person to make a comment on the pot and pass it along. Masanobu last, Akihiro first.
+Masanobu knew the tea ceremony and served it very well. This night he served tea from the pot of a visiting Britisher, a hiking thermos stamped MADE IN ENGLAND with the year 1945. The Britisher was tall and looked more like a Scott, a good highlander from the movies. He had a funny name, Dallas Roscoe Cameron III. The group accepted the tea as it was served in Masanobu's style. The pot was inspected by all and passed around the room. Each person to make a comment on the pot and pass it along. Masanobu last, Akihiro first.
 
 “A year to remember.” Aki said.
 “A canteen of tin.” Jean Pierre said.
