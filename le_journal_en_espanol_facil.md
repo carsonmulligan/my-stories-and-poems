@@ -1,0 +1,1 @@
+buen dia e benvenidos a la journal en espanol facil. me estoy apprendido espanol y creo que si yo escribe mucho del espanol aqui (y hacer muchos incorecto de espanol) es un bon idea por practicar usar la lingua. 
