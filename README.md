@@ -24,24 +24,11 @@
 
 
 ## Le Repondre, au Quebec
-un mec du coite ivoire, trois professeurs, deax administrateurs, trois groupes des étudiants, un backcountry mec du cajouak, beaucoup des personnes qui parle chinois, deux cops.
+> un mec du coite ivoire, trois professeurs, deax administrateurs, trois groupes des étudiants, un backcountry mec du cajouak, beaucoup des personnes qui parle chinois, deux cops.
 
+> “oi texas, savez-vouz qui etait le renee levesque?” 
 
-“oi texas, savez-vouz qui e renee levesque?” 
-
-“meme chose avec le rue, non?” 
-“cest oui, je connaitre cette rue. bon, oui,”
-
-“renee levesque cest un politician qui favoree independence du quebec. quebec libre?”
-“ cest oui, cest bon? “
-
-je sais pas bon ou non.
-
- je sais certainment, ma cher, texas intergalactique parle FRANCAIS tabarnak.
-
-
-
-
+“le rue?” 
 
 ## Chinese Farmer-Zen Poem - Cowboy Translation
 
