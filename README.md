@@ -2,8 +2,12 @@
 
 
 # my-stories-and-poems
+> un mec du coite ivoire, trois professeurs, deax administrateurs, trois groupes des étudiants, un backcountry mec du cajouak, beaucoup des personnes qui parle chinois, deux cops.
 
-## Le Poem du Nelligan du Quebec
+> “oi texas, savez-vouz qui etait le samuel de champlain?” 
+
+> “le lac?” 
+## Le Poem du [Nelligan]([url](https://en.wikipedia.org/wiki/%C3%89mile_Nelligan)) du Quebec
 > maître il est beau ton vers; ciseleau sans pareil.
 > tu nous charme toujour par ta grâce nouvelle.
 > parnessien enchanteur du pays de soleil.
@@ -24,11 +28,7 @@
 
 
 ## Le Repondre, au Quebec
-> un mec du coite ivoire, trois professeurs, deax administrateurs, trois groupes des étudiants, un backcountry mec du cajouak, beaucoup des personnes qui parle chinois, deux cops.
 
-> “oi texas, savez-vouz qui etait le samuel de champlain?” 
-
-> “le lac?” 
 
 ## Chinese Farmer-Zen Poem - Cowboy Translation
 
@@ -120,11 +120,3 @@ Wang Fanzhi, Tang Dynasty
 > Kidd desires to wait in line but lacks a current edition of _The Oklahoman. _ He sets off to acquire a copy. Julia Kirt is just the senator he needs to see. He sets out for Kirt’s office on the fifth floor. A treacherous journey from the first. 
 
 > At this point I realized the best seat in the house was the press box. _Visiting press_ seems appropriate. I must get my hands on a copy of _The Oklahoman_. They say it possesses some magical power. Something clicks when I see Chris Kidd push the button on the elevator. I know I must run up the stairs to the fifth floor to find the last current edition in the building in Julia Kirt’s office. This edition still has the funnies. 
-
-
-
-
-“Burmese tin.” Said the Britisher.
-“Japanese tea.” Said Masanobu. 
-
-Tea was poured and handed across the circular inlaid fire part. Paper walls gave the feeling of sitting inside, tatami mats, clean as a whistle, under clean dojo clothes and clean feet. 
