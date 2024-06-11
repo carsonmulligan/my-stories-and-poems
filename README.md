@@ -26,9 +26,9 @@
 ## Le Repondre, au Quebec
 > un mec du coite ivoire, trois professeurs, deax administrateurs, trois groupes des étudiants, un backcountry mec du cajouak, beaucoup des personnes qui parle chinois, deux cops.
 
-> “oi texas, savez-vouz qui etait le renee levesque?” 
+> “oi texas, savez-vouz qui etait le samuel de champlain?” 
 
-“le rue?” 
+> “le lac?” 
 
 ## Chinese Farmer-Zen Poem - Cowboy Translation
 
