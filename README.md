@@ -38,28 +38,40 @@
 > 種在南山破。
 > 
 > 青松四五樹。
+> 
 > 綠豆兩三顆。
+> 
 > 熱即池中浴。
+> 
 > 涼便岸上歌。
+> 
 > 遨遊自取足。
+> 
 > 能奈我何。
 
 ----
-“I have ten acres. 
-Planted at the back of the Zhongshan Mountain. 
-Four or five Qingsong Trees. 
-Two or three Beanstalks. 
-If it’s hot I’ll jump in the pond. 
-If it’s cold I’ll sing songs by the shore.
-Traveling or at home I am with myself.
-Who could tell me what to do?”
+> “I have ten acres.
+> 
+> Planted at the back of the Zhongshan Mountain.
+> 
+> Four or five Qingsong Trees.
+> 
+> Two or three Beanstalks.
+> 
+> If it’s hot I’ll jump in the pond.
+> 
+> If it’s cold I’ll sing songs by the shore.
+> 
+> Traveling or at home I am with myself.
+> 
+> Who could tell me what to do?”
 ----
 Wang Fanzhi, Tang Dynasty
 ----
 # The Daily Oklahoman
 ----
 
-It was windy when I came in. I told the guard somebody turned the wind on and forgot to turn it off. He said the wind makes this visit special. 
+ It was windy when I came in. I told the guard somebody turned the wind on and forgot to turn it off. He said the wind makes this visit special. 
 
 Senator Bergstrom was there with the guards and Senator Allen. They said call us by our names not Senator this or that and then we had coffee. Bergstrom adjusted his bolo tie and Mary Boren came out of the gift shop. We tipped our hats and said hello. 
 
