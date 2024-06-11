@@ -9,26 +9,52 @@
 > “le lac?” 
 ## Le Poem du [Nelligan]([url](https://en.wikipedia.org/wiki/%C3%89mile_Nelligan)) du Quebec
 > maître il est beau ton vers; ciseleau sans pareil.
+> 
 > tu nous charme toujour par ta grâce nouvelle.
+> 
 > parnessien enchanteur du pays de soleil.
+> 
 > notre langue frémit, sous ta lyre si belle.
+> 
 
 > les classiques sont mort; le voici le reveil.
+> 
 > grand régénérateur, sous ta pure et vaste aile
+> 
 > tout une ère e groupée. en ton vers de vermeil
+> 
 > nous buvons ce poison doux qui nous ensorcelle
+> 
 
 > verlaine, mallarmé, sur ta trace ont suivi
+> 
 > o maitre tu nes plus mais tu va vivre encore
+> 
 > tu vivras dans un jour pleinement assouvi.
+> 
 
 > Du passe, maintenant, ton siecle ouvre un chemin
+> 
 > ou renaitront les fleurs, perle de ton declin
+> 
 > voila la nuit finie a leveil de laurore.
+> 
 
 
 ## Le Repondre, au Quebec
+> master, beautiful it is, your verse. chiseled without parallel
+>  
+> charm us you do, with a new grace
+> 
+> the enchanter of the sun countries parnessian is
+>
+> tremor our language does, under your lyre
 
+> dead the classics are, here the rebirth is
+>
+> grand regenerator, under your vast wings
+>
+> 
 
 ## Chinese Farmer-Zen Poem - Cowboy Translation
 
